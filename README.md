@@ -44,4 +44,4 @@ Improving problem-solving and coding skills
 📫 Contact
 GitHub: (your link)
 
-LinkedIn: (your link)
+LinkedIn: [khadijhdevmohamed](https://www.linkedin.com/in/khadijhdevmohamed)
