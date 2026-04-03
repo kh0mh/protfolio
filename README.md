@@ -42,6 +42,6 @@ Improving problem-solving and coding skills
 
 
 📫 Contact
-GitHub: (your link)
-
 LinkedIn: [khadijhdevmohamed](https://www.linkedin.com/in/khadijhdevmohamed)
+Email: [to8tt@icloud.com]
+GitHub: [https://github.com/kh0mh]
